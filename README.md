@@ -21,7 +21,7 @@
  22
  3
  23
-  </htm>g."proporcionar auto-estima a qualidade e vda aos clientes"</strong>.</em><p>
+  </htm>g."proporcionar auto-estima a qualidade e vida aos clientes"</strong>.</em><p>
        <p>0ferecemos profissionais experientes a antenados as mudancas no mundo da moda.
        0 atendimentos possui padrao de exelencia a agilidade, garantindo qualidade e sasifacao dos nossos clientes.</p>
    </body>
